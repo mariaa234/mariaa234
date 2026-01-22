@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hello! My name is Maria-Anca Cîrnu.  <br>👨‍🎓 I’m pursuing my Cybersecurity Master's @ UBB.  <br>💼 I’m working @ Bosch Romania as a Working Student.  <br>
+👋 Hello! My name is Maria-Anca Cîrnu.  <br>👨‍🎓 I’m pursuing my Cybersecurity Master's @ UBB. 
 
 
 ## 🌐 Socials:
