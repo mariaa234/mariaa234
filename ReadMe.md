@@ -1,5 +1,3 @@
-# 💫 About Me:
-👋 Hello! My name is Maria-Anca Cîrnu.  <br>👨‍🎓 I’m pursuing my Cybersecurity Master's @ UBB. 
 
 
 ## 🌐 Socials:
